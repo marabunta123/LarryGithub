@@ -2,6 +2,6 @@
 
 Esta saga de libros cuentan la historia de un hacker excepctional.
 
-**Alberto Casero**
+**Alberto Casero**, Larry Plotter fan
 
 
